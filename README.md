@@ -1,7 +1,7 @@
 - ⭐️✨ Hello There! ✨⭐️
 - May your wishes be granted... ✨
 - ✨ Please check out my Strawpage! ✨
-  ⭐️⭐️⭐️⭐️⭐️
+-  ⭐️⭐️⭐️⭐️⭐️
 
 <!---
 spikyegg/spikyegg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
