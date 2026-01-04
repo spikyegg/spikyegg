@@ -1,9 +1,3 @@
-- ⭐️✨ Hello There! ✨⭐️
-- May your wishes be granted... ✨
-- ✨ Please check out my Strawpage! ✨
--  ⭐️⭐️⭐️⭐️⭐️
-
-<!---
-spikyegg/spikyegg is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+<img width="1280" height="169" alt="image" src="https://github.com/user-attachments/assets/bf5b1506-463c-487f-848c-49563aacf3be" />
+github readme is in progress! please stand by...
+<img width="1280" height="169" alt="image" src="https://github.com/user-attachments/assets/3cc8aa3e-a49f-4cc5-9729-e9ce4dd5064a" />
