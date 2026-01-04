@@ -3,8 +3,8 @@
 
 To learn more specifics about me, check out my other social medias:
 
-- strawpage
-- toyhouse
+- [strawpage](https://nostalgiathatisntyours.straw.page)
+- [toyhouse](https://toyhou.se/spikyegg)
 
 <img width="1324" height="656" alt="image" src="https://github.com/user-attachments/assets/4c50798d-5263-43ca-b8e8-186d0d3ab3f4" />
 
@@ -19,11 +19,12 @@ I usually hang out near docks! I'm not always talkative, but feel free to say hi
 
 Miscellaneous
 
-- 2010's radio music
-- vocaloid songs that i like :3
-- songs to animate your oc to
-- wonderful musical songs
-- cheesy love songs that i cant relate to
+- [2010's radio music](https://open.spotify.com/playlist/6tKvEs5OboP7OG41FKGdsw?si=I_q4G6sCRu2_q5a_CJb0bA&pi=m84EL6lWThmKA)
+- [vocaloid songs that i like :3](https://open.spotify.com/playlist/6GL3oBLKGlPfBXUKA9W0F3?si=1OPJ7q-FSc-luphNIQ_Gpg&pi=oLsDE_59Rkmg9)
+- [songs to animate your ocs to](https://open.spotify.com/playlist/6ZRReIWFzr3GzFeejhviDX?si=rMnRt7ZfQ8uzKrL73-Bx9Q&pi=xVqm0mPaSOmYx)
+- [wonderful musical songs](https://open.spotify.com/playlist/3vi8t85CaOOw0uNXL7SoXV?si=hHgW3r7ITyKtLB0h5c1e1g&pi=KyWTUyNQRRidm)
+- [pawsome fandom playlist](https://open.spotify.com/playlist/1AOQzTtiPtKwPcvXw52um9?si=TPtVdcLTRiCSOG3zoR0HDA&pi=SzuSGsMES0Suo)
+- [cheesy love songs that i cant relate to](https://open.spotify.com/playlist/5D2sHpFzChnAkuXwBw8WKf?si=5SHCmExESs-f_QdLaO0Rpg&pi=CYGZ4UwuSh2kx)
 
 Game Music
 
@@ -43,13 +44,13 @@ Playlists for my Favorite Characters
 
 OC Playlists
 
-- Mishap "Maleah" Ellescanor
-- Derek Hadria Ellescanor
-- Gomeisa
-- Foxglove
-- Roi "Kricket" Kanami Sterling
-- Rabuta Makaveti Sterling
-- Pia Lep Duveteuse
+- [Mishap "Maleah" Ellescanor](https://open.spotify.com/playlist/5zwOl4mlmkCytqRpt4Rr9L?si=-j5Cf7Z2RbKGSjeBsGRV6w&pi=Slc-zk62R7aiJ)
+- [Derek Hadria Ellescanor](https://open.spotify.com/playlist/0V2e5rjLt2Zw3xAdLeN5pF?si=g5vRHKNORRaMaammA8if9A&pi=kkeqflcuTTmiG)
+- [Gomeisa](https://open.spotify.com/playlist/7xX0PAWeltE0zeICYuxinn?si=sUBDpKz1REaYdJlTv9n5Vw&pi=Muc-lawwSSyaw)
+- [Foxglove](https://open.spotify.com/playlist/52ckTAxAnTpy8GXZpA6DyJ?si=QFRIEhoUQsqvOhG3EFFC9g&pi=Pnjr_K29S8u_o)
+- [Roi "Kricket" Kanami Sterling](https://open.spotify.com/playlist/6MJi3RpxZZFr9nOX5dR0eT?si=xeHPy6ITRP-CnaaaeOrkjg&pi=gN6CNODdQbunT)
+- [Rabuta Makaveti Sterling](https://open.spotify.com/playlist/0WC279KAQhx3cs1aYJKKDu?si=V4ybYKqZSoeXtNShBDESiA&pi=GFe2tO1pQH2lG)
+- [Pia Lep Duveteuse](https://open.spotify.com/playlist/5dDamhN6RSCBigkkJnbwYd?si=EQB0TEgnRheY9n8MxK39Og&pi=WEEip8crSX-Hm)
 
 <img width="1035" height="363" alt="image" src="https://github.com/user-attachments/assets/4dc16e2a-7131-43ef-b8b4-bd2545a09613" />
 
