@@ -51,6 +51,9 @@ OC Playlists
 - Rabuta Makaveti Sterling
 - Pia Lep Duveteuse
 
+<img width="1035" height="363" alt="image" src="https://github.com/user-attachments/assets/4dc16e2a-7131-43ef-b8b4-bd2545a09613" />
+
+
 github readme is in progress! please stand by...
 
 <img width="1280" height="169" alt="image" src="https://github.com/user-attachments/assets/3cc8aa3e-a49f-4cc5-9729-e9ce4dd5064a" />
