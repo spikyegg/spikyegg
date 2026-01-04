@@ -28,19 +28,19 @@ Miscellaneous
 
 Game Music
 
-- playing minecraft legacy edition with friends you'll never see again
-- calm modern minecraft music
-- my fav utdr music
+- [playing minecraft legacy edition with friends you'll never see again](https://open.spotify.com/playlist/358310NjISSwPvOQxkIwoQ?si=H6C5w4YxQBiKJ7ekkYt8Wg&pi=aPMBFFlnTciqr)
+- [calm modern minecraft music](https://open.spotify.com/playlist/6Whxac3UFRb8uh5iq7hfp7?si=XC_yEdxGTQ-QcPe7oAT6FQ&pi=b2Fn2WHVQKC1a)
+- [my fav utdr music](https://open.spotify.com/playlist/3SEbHR0TodQJomNNM7v8mY?si=IaUJV18FTgeScywECSLAqw&pi=iG_VjMRkQpWi5)
 
 Artist Specific Playlists
 
-- will wood playlist but it gets progressively more chaotic the longer you listen
- - Jhariah playlist for my silly amv ideas
+- [will wood playlist but it gets progressively more chaotic the longer you listen](https://open.spotify.com/playlist/5GZwtu7A6Qi8s5fo6PRpUe?si=l-aLrj1_SsGoDB9ibxB-Mg&pi=pM3Hrkf4RVKdm)
+ - [Jhariah playlist for my silly amv ideas](https://open.spotify.com/playlist/5LiaTFf7f8Wr0zkSfsz1Qa?si=n__l1rDRSX6cxwUZT1p0rA&pi=EdjEiDhtSP2b2)
 
 Playlists for my Favorite Characters
 
-- JAFAR GET A GRIP
-- Jirachi Playlist!
+- [JAFAR GET A GRIP](https://open.spotify.com/playlist/4oLGPaJ6mrJCpx36TCzfve?si=5-SjnaYpRoWu1VhEF7aiJA&pi=S6bgZN7ISnOG2)
+- [Jirachi Playlist!](https://open.spotify.com/playlist/1Flg24BYGUCdhaqHEXUrkZ?si=i6gJMkMlS8ysA7jFp0-nag&pi=dplWlgB8QXOFf)
 
 OC Playlists
 
