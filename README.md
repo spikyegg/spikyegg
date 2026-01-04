@@ -45,7 +45,7 @@ Playlists for my Favorite Characters
 
 OC Playlists
 
-- [Mishap "Maleah" Ellescanor](https://open.spotify.com/playlist/5zwOl4mlmkCytqRpt4Rr9L?si=-j5Cf7Z2RbKGSjeBsGRV6w&pi=Slc-zk62R7aiJ)
+- ["Mishap" Maleah Ellescanor](https://open.spotify.com/playlist/5zwOl4mlmkCytqRpt4Rr9L?si=-j5Cf7Z2RbKGSjeBsGRV6w&pi=Slc-zk62R7aiJ)
 - [Derek Hadria Ellescanor](https://open.spotify.com/playlist/0V2e5rjLt2Zw3xAdLeN5pF?si=g5vRHKNORRaMaammA8if9A&pi=kkeqflcuTTmiG)
 - [Gomeisa](https://open.spotify.com/playlist/7xX0PAWeltE0zeICYuxinn?si=sUBDpKz1REaYdJlTv9n5Vw&pi=Muc-lawwSSyaw)
 - [Foxglove](https://open.spotify.com/playlist/52ckTAxAnTpy8GXZpA6DyJ?si=QFRIEhoUQsqvOhG3EFFC9g&pi=Pnjr_K29S8u_o)
